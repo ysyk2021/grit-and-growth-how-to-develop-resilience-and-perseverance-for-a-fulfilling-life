@@ -1,4 +1,4 @@
-Chapter: Introduction
+Introduction
 =====================
 
 Developing grit and growth mindset are essential qualities for achieving success and fulfillment in all areas of life. In this book, we will explore strategies for developing resilience and perseverance, applying grit and growth mindset across domains, and harnessing failure as a tool for growth.

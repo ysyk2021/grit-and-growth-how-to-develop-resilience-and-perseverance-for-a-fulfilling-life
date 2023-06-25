@@ -1,4 +1,4 @@
-Chapter: Balancing Perseverance with Self-Care
+Balancing Perseverance with Self-Care
 ==============================================
 
 Perseverance is important for achieving long-term goals, but it's equally important to balance perseverance with self-care. In this chapter, we will explore strategies for incorporating self-care into your routine while still maintaining your focus on achieving your goals.

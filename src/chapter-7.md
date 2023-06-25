@@ -1,4 +1,4 @@
-Chapter: Applying Grit and Growth Mindset Across Domains
+Applying Grit and Growth Mindset Across Domains
 ========================================================
 
 Grit and growth mindset are not only applicable to personal goals, but also to various domains of life. In this chapter, we will explore how to apply these concepts to career development, health and wellness, relationships, and social impact.

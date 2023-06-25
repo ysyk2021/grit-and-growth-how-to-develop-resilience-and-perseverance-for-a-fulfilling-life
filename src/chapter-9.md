@@ -1,4 +1,4 @@
-Chapter: Sustaining Grit and Growth Mindset
+Sustaining Grit and Growth Mindset
 ===========================================
 
 Developing grit and growth mindset is an ongoing process that requires sustained effort and dedication. In this chapter, we will explore strategies for maintaining momentum, preparing for future challenges, staying motivated and inspired, and achieving long-term success.

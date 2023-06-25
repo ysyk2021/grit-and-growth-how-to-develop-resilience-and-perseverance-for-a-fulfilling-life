@@ -1,4 +1,4 @@
-Chapter: Overcoming Obstacles to Grit and Growth Mindset
+Overcoming Obstacles to Grit and Growth Mindset
 ========================================================
 
 Developing grit and growth mindset is not always easy, and there are many obstacles that can hinder our progress. In this chapter, we will explore strategies for overcoming some common obstacles to grit and growth mindset.

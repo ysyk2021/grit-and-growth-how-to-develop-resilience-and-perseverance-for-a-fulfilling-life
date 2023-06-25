@@ -1,4 +1,4 @@
-Chapter: Understanding Grit and Growth Mindset
+Understanding Grit and Growth Mindset
 ==============================================
 
 Grit and growth mindset are two essential qualities for developing resilience, perseverance, and achieving success in life. In this chapter, we will explore what grit and growth mindset are, as well as their benefits.
