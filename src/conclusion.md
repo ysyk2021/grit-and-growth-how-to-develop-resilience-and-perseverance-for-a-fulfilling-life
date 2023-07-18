@@ -1,8 +1,5 @@
 # Conclusion
 
-Conclusion
-==========
-
 In this book, we have explored the concept of grit and growth mindset and how they can help individuals develop resilience and perseverance for a fulfilling life. We have covered topics such as setting goals, overcoming obstacles, embracing failure, and cultivating a growth mindset. In this final chapter, we will recap key points, share final thoughts on developing grit and growth mindset, and provide resources for further study.
 
 Recap of Key Points
