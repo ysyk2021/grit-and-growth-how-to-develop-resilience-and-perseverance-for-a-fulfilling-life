@@ -1,7 +1,5 @@
 # Introduction
 
-Chapter 1: Introduction
-
 In today's fast-paced and ever-changing world, everyone faces challenges and obstacles on the path towards achieving their dreams and goals. Whether it is in our personal or professional lives, we often encounter setbacks that can derail us from our journey towards success and fulfillment.
 
 However, those who possess grit and growth mindset are better equipped to overcome these challenges and persevere towards their goals. Grit is the ability to maintain long-term perseverance and passion for a goal, while growth mindset is the belief that talents and abilities can be developed through hard work and dedication.
