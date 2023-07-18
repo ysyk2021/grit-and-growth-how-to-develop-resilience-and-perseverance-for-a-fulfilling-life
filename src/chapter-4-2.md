@@ -1,4 +1,4 @@
-Strategies for Perseverance - Breaking Down Goals into Manageable Steps
+Breaking Down Goals into Manageable Steps
 ================================================================================
 
 Setting goals is an important part of developing perseverance, but it can be overwhelming to tackle a large goal all at once. In this chapter, we will explore strategies for breaking down goals into manageable steps.

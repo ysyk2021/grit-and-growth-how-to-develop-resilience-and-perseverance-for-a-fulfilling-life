@@ -1,4 +1,4 @@
-Strategies for Perseverance - Building Support Systems
+Building Support Systems
 ===============================================================
 
 Developing resilience and perseverance is essential for achieving success in life, but it's difficult to do so alone. In this chapter, we will explore strategies for building support systems that can help us persevere through challenges.

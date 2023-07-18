@@ -1,4 +1,4 @@
-Overcoming Obstacles to Grit and Growth Mindset - Managing Stress and Anxiety
+Managing Stress and Anxiety
 ======================================================================================
 
 Managing stress and anxiety is critical for developing and sustaining grit and growth mindset. In this chapter, we will explore strategies for managing stress and anxiety towards personal and professional growth.

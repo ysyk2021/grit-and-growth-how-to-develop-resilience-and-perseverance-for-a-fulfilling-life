@@ -1,4 +1,4 @@
-Harnessing Failure as a Tool for Growth - Changing Your Perspective on Failure
+Changing Your Perspective on Failure
 =======================================================================================
 
 Failure is an inevitable part of life, but it's how we respond to failure that determines whether we grow or stagnate. In this chapter, we will explore strategies for harnessing failure as a tool for growth by changing our perspective on failure.

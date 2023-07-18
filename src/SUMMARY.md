@@ -2,7 +2,6 @@
 
 - [Introduction](README.md)
   - [Why developing grit and growth mindset is important for fulfillment in life](chapter-1-1.md)
-  - [Overview of topics covered in the book](chapter-1-2.md)
 - [Understanding Grit and Growth Mindset](chapter-2.md)
   - [What is grit?](chapter-2-1.md)
   - [What is growth mindset?](chapter-2-2.md)

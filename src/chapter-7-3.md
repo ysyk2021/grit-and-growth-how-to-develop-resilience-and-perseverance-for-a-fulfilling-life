@@ -1,4 +1,4 @@
-Applying Grit and Growth Mindset Across Domains - Relationships
+Relationships
 ========================================================================
 
 Grit and growth mindset are essential qualities for achieving success in all areas of life, including relationships. In this chapter, we will explore strategies for applying grit and growth mindset to relationships.

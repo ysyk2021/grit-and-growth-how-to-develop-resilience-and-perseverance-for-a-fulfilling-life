@@ -1,4 +1,4 @@
-Understanding Grit and Growth Mindset - The Benefits of Developing Grit and Growth Mindset
+The Benefits of Developing Grit and Growth Mindset
 ===================================================================================================
 
 Developing grit and a growth mindset are essential for achieving success in life, but they also provide many other benefits. In this chapter, we will explore the benefits of developing grit and a growth mindset.

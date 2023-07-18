@@ -1,4 +1,4 @@
-Harnessing Failure as a Tool for Growth - Developing Emotional Intelligence
+Developing Emotional Intelligence
 ====================================================================================
 
 Developing emotional intelligence can help us better handle failure and setbacks, allowing us to learn from our mistakes and grow as individuals. In this chapter, we will explore strategies for developing emotional intelligence as a way of harnessing failure as a tool for growth.

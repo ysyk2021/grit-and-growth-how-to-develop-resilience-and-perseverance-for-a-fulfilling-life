@@ -1,4 +1,4 @@
-Cultivating Resilience - Embracing Challenges as Opportunities for Growth
+Embracing Challenges as Opportunities for Growth
 ==================================================================================
 
 Resilience is the ability to bounce back from setbacks and challenges, persist towards long-term goals, and achieve success and fulfillment in all areas of life. In this chapter, we will explore strategies for cultivating resilience by embracing challenges as opportunities for growth.

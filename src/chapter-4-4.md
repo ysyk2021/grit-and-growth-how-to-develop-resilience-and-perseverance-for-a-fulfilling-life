@@ -1,4 +1,4 @@
-Strategies for Perseverance - Maintaining Motivation and Momentum
+Maintaining Motivation and Momentum
 ==========================================================================
 
 Maintaining motivation and momentum is essential for developing resilience and perseverance towards long-term goals. In this chapter, we will explore strategies for maintaining motivation and momentum.

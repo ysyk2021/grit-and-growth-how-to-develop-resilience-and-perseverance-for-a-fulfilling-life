@@ -1,4 +1,4 @@
-Sustaining Grit and Growth Mindset - Preparing for Future Challenges
+Preparing for Future Challenges
 =============================================================================
 
 Preparing for future challenges is essential for sustaining grit and growth mindset. In this chapter, we will explore strategies for preparing for future challenges and maintaining momentum towards personal and professional growth.

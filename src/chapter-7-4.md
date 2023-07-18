@@ -1,4 +1,4 @@
-Applying Grit and Growth Mindset Across Domains - Social Impact
+Social Impact
 ========================================================================
 
 Grit and growth mindset are not just applicable to personal goals, but also to making a positive impact on society. In this chapter, we will explore how to apply these concepts to social impact.

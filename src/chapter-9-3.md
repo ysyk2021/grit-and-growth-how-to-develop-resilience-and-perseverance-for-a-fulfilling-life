@@ -1,4 +1,4 @@
-Sustaining Grit and Growth Mindset - Staying Motivated and Inspired
+Staying Motivated and Inspired
 ============================================================================
 
 Staying motivated and inspired is critical for sustaining grit and growth mindset. In this chapter, we will explore strategies for staying motivated and inspired towards personal and professional growth.

@@ -1,4 +1,4 @@
-Conclusion - Resources for Further Study
+Resources for Further Study
 =================================================
 
 Congratulations on completing "Grit and Growth: How to Develop Resilience and Perseverance for a Fulfilling Life." We hope that this book has provided you with valuable insights and strategies for achieving long-term success and fulfillment in all areas of life.

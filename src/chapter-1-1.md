@@ -1,4 +1,4 @@
-Introduction - Why Developing Grit and Growth Mindset is Important for Fulfillment in Life
+Why Developing Grit and Growth Mindset is Important for Fulfillment in Life
 ===================================================================================================
 
 Developing grit and growth mindset are essential qualities for achieving success and fulfillment in all areas of life. In this chapter, we will explore why developing grit and growth mindset is important for fulfillment in life.
