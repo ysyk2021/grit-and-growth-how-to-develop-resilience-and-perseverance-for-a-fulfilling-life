@@ -1,5 +1,3 @@
-Overcoming Fear and Doubt
-====================================================================================
 
 Overcoming fear and doubt is critical for developing and sustaining grit and growth mindset. In this chapter, we will explore strategies for overcoming fear and doubt towards personal and professional growth.
 

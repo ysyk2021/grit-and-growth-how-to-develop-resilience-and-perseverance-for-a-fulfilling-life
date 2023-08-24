@@ -1,5 +1,3 @@
-Strategies for Maintaining Momentum
-=================================================================================
 
 Maintaining momentum is critical for sustaining grit and growth mindset. In this chapter, we will explore strategies for keeping up your momentum towards personal and professional growth.
 

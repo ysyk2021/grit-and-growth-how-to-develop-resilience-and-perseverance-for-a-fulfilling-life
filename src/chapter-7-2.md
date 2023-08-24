@@ -1,5 +1,3 @@
-Health and Wellness
-==============================================================================
 
 Grit and growth mindset are essential qualities for achieving success in all areas of life, including health and wellness. In this chapter, we will explore strategies for applying grit and growth mindset to health and wellness.
 

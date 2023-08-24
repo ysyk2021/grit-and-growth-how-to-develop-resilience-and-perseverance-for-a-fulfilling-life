@@ -1,5 +1,3 @@
-Achieving Long-Term Success
-=========================================================================
 
 Achieving long-term success requires sustained effort and dedication. In this chapter, we will explore strategies for sustaining grit and growth mindset to achieve long-term success.
 

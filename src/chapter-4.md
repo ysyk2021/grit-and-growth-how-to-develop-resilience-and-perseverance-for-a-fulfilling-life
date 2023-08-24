@@ -1,5 +1,3 @@
-Strategies for Perseverance
-====================================
 
 Perseverance is the ability to persist through challenges and setbacks, and continue working towards long-term goals. In this chapter, we will explore strategies for developing perseverance.
 

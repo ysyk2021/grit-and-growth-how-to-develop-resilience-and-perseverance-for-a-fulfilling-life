@@ -1,5 +1,3 @@
-Overcoming Self-Doubt
-=======================================================
 
 Self-doubt can be a major obstacle to resilience, preventing us from taking risks, pursuing our goals, and bouncing back from setbacks. In this chapter, we will explore strategies for cultivating resilience by overcoming self-doubt.
 

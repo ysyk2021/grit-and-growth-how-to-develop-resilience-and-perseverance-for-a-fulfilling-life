@@ -1,5 +1,3 @@
-What is Growth Mindset?
-========================================================================
 
 Growth mindset is a term coined by psychologist Carol Dweck that refers to the belief that our abilities can be developed through hard work, dedication, and perseverance. In this chapter, we will explore what growth mindset is and why it's important for developing resilience and perseverance.
 

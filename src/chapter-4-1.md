@@ -1,5 +1,3 @@
-Setting Goals
-====================================================
 
 Setting goals is a powerful strategy for developing perseverance and achieving success in life. In this chapter, we will explore how to set effective goals that inspire and motivate you to persevere.
 

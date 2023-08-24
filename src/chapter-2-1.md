@@ -1,5 +1,3 @@
-What is Grit?
-==============================================================
 
 Grit is a term coined by psychologist Angela Duckworth that refers to the combination of passion and perseverance towards long-term goals. In this chapter, we will explore what grit is and why it's important for developing resilience and perseverance.
 

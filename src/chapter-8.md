@@ -1,5 +1,3 @@
-Overcoming Obstacles to Grit and Growth Mindset
-========================================================
 
 Developing grit and growth mindset is not always easy, and there are many obstacles that can hinder our progress. In this chapter, we will explore strategies for overcoming some common obstacles to grit and growth mindset.
 
@@ -43,5 +41,4 @@ Conclusion
 ----------
 
 Overcoming obstacles to grit and growth mindset is an ongoing process that requires sustained effort and dedication. By managing stress and anxiety, coping with burnout, dealing with criticism and rejection, and overcoming fear and doubt, we can continue growing and learning throughout our lives. Remember to prioritize self-care, seek support when necessary, and stay committed to personal and professional growth. With grit and growth mindset, you can overcome any obstacle and achieve anything you set your mind to.
-
 

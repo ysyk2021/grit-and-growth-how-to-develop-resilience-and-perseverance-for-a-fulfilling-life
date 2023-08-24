@@ -1,5 +1,3 @@
-Recap of Key Points
-=========================================
 
 In this book, we have explored strategies for developing grit and growth mindset to achieve long-term success and fulfillment in all areas of life. Here is a recap of the key points:
 

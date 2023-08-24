@@ -1,5 +1,3 @@
-Cultivating Resilience
-===============================
 
 Cultivating resilience is essential for developing perseverance and achieving success in life. In this chapter, we will explore strategies for building resilience, overcoming self-doubt, embracing challenges as opportunities for growth, and practicing self-compassion.
 

@@ -1,5 +1,3 @@
-Career Development
-=============================================================================
 
 Grit and growth mindset are essential qualities for achieving success in all areas of life, including career development. In this chapter, we will explore strategies for applying grit and growth mindset to career development.
 

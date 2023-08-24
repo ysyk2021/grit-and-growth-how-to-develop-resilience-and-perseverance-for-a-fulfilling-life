@@ -1,5 +1,3 @@
-Practicing Self-Compassion
-============================================================
 
 Self-compassion is a key component of cultivating resilience. By treating ourselves with kindness and understanding, we can better cope with adversity and develop the perseverance needed to achieve our goals. In this chapter, we will explore strategies for practicing self-compassion.
 

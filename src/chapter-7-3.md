@@ -1,5 +1,3 @@
-Relationships
-========================================================================
 
 Grit and growth mindset are essential qualities for achieving success in all areas of life, including relationships. In this chapter, we will explore strategies for applying grit and growth mindset to relationships.
 
@@ -36,5 +34,4 @@ Conclusion
 ----------
 
 Applying grit and growth mindset to relationships is essential for maintaining positive, fulfilling, and long-lasting relationships. By developing grit, applying growth mindset, setting long-term goals, practicing forgiveness, embracing challenges, communicating effectively, believing in potential, learning from setbacks, adopting a "not yet" mentality, experimenting with new approaches, reframing setbacks as opportunities for growth, seeking support, and practicing self-compassion, we can develop the resilience and perseverance necessary to achieve our desired outcome in our relationships.
-
 

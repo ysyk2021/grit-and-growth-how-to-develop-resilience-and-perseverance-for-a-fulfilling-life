@@ -1,5 +1,3 @@
-Dealing with Criticism and Rejection
-===============================================================================================
 
 Dealing with criticism and rejection is critical for developing and sustaining grit and growth mindset. In this chapter, we will explore strategies for dealing with criticism and rejection towards personal and professional growth.
 
