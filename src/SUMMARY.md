@@ -42,3 +42,4 @@
   - [Achieving long-term success](chapter-9-4.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)

@@ -11,3 +11,7 @@ Through this book, readers will learn how to set ambitious goals, embrace discom
 Overall, by developing and sustaining grit and growth mindset, readers can overcome any obstacle and achieve anything they set their mind to. This book serves as a guide towards personal and professional growth, and towards living a fulfilling life that aligns with one's values and passions.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
