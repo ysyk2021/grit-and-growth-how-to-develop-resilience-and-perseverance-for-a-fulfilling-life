@@ -1,5 +1,4 @@
-Chapter 2: What is Grit?
-========================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of grit and its significance in developing resilience and perseverance for a fulfilling life.
 

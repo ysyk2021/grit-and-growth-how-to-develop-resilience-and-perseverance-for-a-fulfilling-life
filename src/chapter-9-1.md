@@ -1,5 +1,4 @@
-Chapter 7: Strategies for Maintaining Momentum
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for maintaining momentum on the path to developing resilience and perseverance. Building resilience requires consistent effort, motivation, and the ability to sustain progress over time. By implementing the following strategies, you can stay focused, motivated, and continue making forward strides towards a fulfilling life.
 

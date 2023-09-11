@@ -1,5 +1,4 @@
-Chapter 9: Dealing with Criticism and Rejection
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In life, criticism and rejection are inevitable. Whether it's in your personal relationships, professional endeavors, or creative pursuits, facing criticism and rejection can be challenging and disheartening. However, by developing the right mindset and adopting effective strategies, you can navigate these obstacles and use them as opportunities for growth and self-improvement.
 

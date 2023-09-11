@@ -1,5 +1,4 @@
-Chapter X: Learning from Mistakes
-=================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of learning from mistakes and how it contributes to developing resilience and perseverance. We will delve into strategies and techniques that can help you embrace failures, extract valuable lessons from them, and use those lessons as stepping stones toward personal growth and a more fulfilling life.
 

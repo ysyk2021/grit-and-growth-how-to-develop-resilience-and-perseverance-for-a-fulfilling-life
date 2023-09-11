@@ -1,5 +1,4 @@
-Chapter 3: The Benefits of Developing Grit and Growth Mindset
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the numerous benefits that come from developing grit and a growth mindset. We will delve into how these qualities contribute to personal growth, resilience, and success.
 

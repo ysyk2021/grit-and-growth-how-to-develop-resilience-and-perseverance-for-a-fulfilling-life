@@ -1,5 +1,4 @@
-Chapter 8: Building Support Systems
-===================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of resilience and perseverance, building a strong support system is crucial. This chapter explores the significance of support systems, provides guidance on how to cultivate them, and highlights the benefits they bring to individuals striving for a fulfilling life.
 

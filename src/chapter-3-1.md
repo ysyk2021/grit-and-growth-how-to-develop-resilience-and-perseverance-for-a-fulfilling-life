@@ -1,5 +1,4 @@
-Chapter 6: Building Resilience Through Adversity
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of building resilience through adversity. Adversity is an inevitable part of life, and developing resilience is crucial for overcoming challenges, bouncing back from setbacks, and persevering towards a fulfilling life. We will delve into the various strategies and mindset shifts that can help us build resilience in the face of adversity.
 

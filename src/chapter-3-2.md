@@ -1,5 +1,4 @@
-Chapter 5: Overcoming Self-Doubt
-================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of self-doubt and its impact on resilience and perseverance. We will delve into strategies and techniques that can help you overcome self-doubt, build self-confidence, and cultivate a mindset of resilience for a more fulfilling life.
 

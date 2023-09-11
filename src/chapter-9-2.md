@@ -1,5 +1,4 @@
-Chapter 8: Preparing for Future Challenges
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies to proactively prepare for future challenges, ensuring that you can navigate them with resilience and perseverance. Developing the ability to anticipate and effectively respond to obstacles is crucial for maintaining momentum on your journey towards a fulfilling life. By implementing the following strategies, you can equip yourself with the tools necessary to face challenges head-on.
 

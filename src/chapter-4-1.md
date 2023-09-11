@@ -1,5 +1,4 @@
-Chapter 7: Setting Goals
-========================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Setting goals is a crucial aspect of developing resilience and perseverance in life. This chapter explores the importance of goal setting, provides guidance on how to set effective goals, and highlights the benefits that come from pursuing and achieving these goals.
 

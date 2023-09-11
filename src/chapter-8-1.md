@@ -1,5 +1,4 @@
-Chapter 10: Managing Stress and Anxiety
-=======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Stress and anxiety are common experiences in today's fast-paced and demanding world. They can impact our mental, emotional, and physical well-being if not properly managed. Developing effective strategies to manage and reduce stress and anxiety is essential for maintaining a fulfilling and balanced life. In this chapter, we will explore various techniques and practices that can help you effectively manage stress and anxiety.
 

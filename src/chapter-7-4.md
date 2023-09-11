@@ -1,5 +1,4 @@
-Chapter 6: Social Impact
-========================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of social impact and how it contributes to resilience and perseverance. We will delve into the importance of making a positive difference in the lives of others and the world around us. By understanding the power of social impact and incorporating it into our lives, we can cultivate a greater sense of purpose and fulfillment.
 

@@ -1,5 +1,4 @@
-Chapter 4: Maintaining Motivation and Momentum
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for maintaining motivation and momentum on your journey to developing grit, resilience, and a growth mindset. We will delve into techniques that can help you stay focused, overcome obstacles, and sustain your enthusiasm for long-term success.
 

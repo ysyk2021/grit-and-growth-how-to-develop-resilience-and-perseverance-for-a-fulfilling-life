@@ -1,5 +1,4 @@
-Chapter 8: Coping with Burnout
-==============================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Burnout is a state of emotional, mental, and physical exhaustion caused by prolonged stress, excessive workload, or lack of fulfillment. In this chapter, we will explore strategies for coping with burnout and regaining a sense of balance and well-being in your life.
 

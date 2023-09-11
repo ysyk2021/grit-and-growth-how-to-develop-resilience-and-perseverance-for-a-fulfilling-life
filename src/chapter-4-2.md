@@ -1,5 +1,4 @@
-Chapter 8: Breaking Down Goals into Manageable Steps
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In order to cultivate resilience and perseverance, it is essential to break down your goals into manageable steps. This chapter explores the significance of breaking down goals, provides guidance on how to do so effectively, and highlights the benefits of this approach in achieving a fulfilling life.
 
